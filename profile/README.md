@@ -11,3 +11,4 @@ Welcome to the official Overneutron hub, where we build, play, and dream beyond 
 Check out our projects, contribute, or just vibe with the Overneutron energy.
 
 Roblox Group: https://www.roblox.com/communities/847707580/Overneutron-Studios#!/about
+Discord Server: https://discord.gg/jFbfM649N4
