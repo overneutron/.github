@@ -1,7 +1,7 @@
 # Overneutron Studios
 
 Breaking atomic limits with creativity ⚡  
-Welcome to the official Overneutron hub — where we build, play, and dream beyond boundaries.
+Welcome to the official Overneutron hub, where we build, play, and dream beyond boundaries.
 
 ## 🚀 What We Do
 - Game development on Roblox
